@@ -14,4 +14,6 @@ To record every day
 
 
 
+[好的](https://www.deepl.com/Translator#en/zh/fetch%20origin)
+
 还是有很多事情要学习的
